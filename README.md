@@ -59,4 +59,4 @@
 
 ---
 
-⭐ From [Safwan](https://github.com/sahilgohill)
+⭐ From [Sahil](https://github.com/sahilgohill)
